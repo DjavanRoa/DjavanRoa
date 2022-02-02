@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DjavanRoa
+- 👀 I’m interested in Microsoft 365 and cloud development & technologies
+- 🌱 I’m currently learning... every day!
+- 💞️ I’m looking to collaborate on usefull projects
+- 📫 How to reach me : linkedin /in/djavanroa or tweeter @DjavanROA
